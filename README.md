@@ -7,4 +7,4 @@ trabajo como estudiante en programacion en cecytem
 mys intereses dominar unlenguaje de programacion 
 
 - ⚡ 
-
+tecnico en programacion 
